@@ -1,0 +1,1 @@
+![](/Text-Editor-Day1/TEXT-ED%C4%B0TOR.jpg)
